@@ -35,7 +35,7 @@ We are committed to supporting your educational journey and making your student 
 
 ## Getting Started
 
-Visit our website at [ITians](bit.ly/topics-it) to get started. You can sign up, explore the forums, and start participating in discussions. Feel free to contribute to the community by sharing your knowledge and resources.
+Visit our website at [ITians](https://eh7q7h2ipvofxqhdjs39vg.on.drv.tw/IT-off%20topicsss/IITina)) to get started. You can sign up, explore the forums, and start participating in discussions. Feel free to contribute to the community by sharing your knowledge and resources.
 
 ## Contributing
 
